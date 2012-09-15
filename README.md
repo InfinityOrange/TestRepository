@@ -8,3 +8,5 @@ I am watching Fullmetal Alchemist: Brotherhood.
 OPPAN GANGNAM STYLE!!!!
 
 Mafuyu-chan no soma o nomimasen ka?
+
+HELLO WORLD!
